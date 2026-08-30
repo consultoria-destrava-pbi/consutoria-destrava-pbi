@@ -17,11 +17,3 @@ Transformar dados em vantagem competitiva, ajudando pessoas e organizações a t
 Whats: 13 99688-9777
 
 LinkedIn: https://www.linkedin.com/in/eric-penha-araujo/
-
-
-Transformar dados em vantagem competitiva, ajudando pessoas e organizações a tomarem decisões inteligentes e alcançarem novos resultados.
-
-📬 Contato
-Whats: 13 99688-9777
-
-LinkedIn: https://www.linkedin.com/in/eric-penha-araujo/
